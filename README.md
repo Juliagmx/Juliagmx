@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Juliagmx
+- 👀 Trying to learn all about AI 
+- 🌱 I’m currently studiying psychology and media and communication
+- 💞️ If you have any suggestions on how to start- pls tell me <3
+- 📫 Reach me on instagram: mirni_filip
+- ⚡ Fun fact: right now I feel like I didn't even knew technology even existed
